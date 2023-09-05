@@ -11,4 +11,9 @@ Here are some ideas to get you started:
 - 💬 Ask me about my favorite show at the moment...I'll give you a hint it's the Big Bang Theory
 - ⚡ Fun fact: I'm a single father of a beautiful 1 year old daughter named Mayari.
 - ⚡ Fun Fact: I have Guatemalan roots, which goes back to the ancient Mayans. There are 16 dialects of the Mayan language, I know some words but I wish I was fluent.
+- 😁 Things That I would like to see more that will help me videos on how to do certain projects and how to turn things in.
+- 🎶 I'm confused on how to use GitHub, but once I figure it out it won't be that bad.
+- 😆 I love the color Turquoise.
+- 🐱‍🏍 My favorite superhero is Spider-Man, but for DC I love Dr. Fate.
+- 🎂 My birthday is on April, I'm a taurus. 
 -->
